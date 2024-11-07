@@ -13,4 +13,11 @@ Here’s what I’m all about:
    - 💬 What I Do Best:
             Communicating clearly, solving problems, adapting quickly, and making sure the data serves its purpose.
 
-I’m always experimenting, learning new tricks, and looking to collaborate. If you want to see how data can work for you, let’s chat!
+I’m always experimenting, learning new tricks, and looking to collaborate. If you want to see how data can work for you, let’s chat.
+
+# Here’s how to reach me:
+   Email: ik1703656@gmail.com
+   
+   LinkedIn: https://www.linkedin.com/in/imran-khan-8585i/
+   
+   facebook: https://www.facebook.com/profile.php?id=61557946934104 
